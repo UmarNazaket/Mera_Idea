@@ -1,0 +1,1 @@
+Mera Idea is a web platform where aspiring entrepreneurs can share their business concepts and receive guidance and insights from experienced professionals in related fields, fostering a collaborative environment for innovation and growth.
